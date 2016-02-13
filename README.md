@@ -11,11 +11,17 @@ oṃ śāntiḥ śāntiḥ śāntiḥ
 =====
 Page 15
 ------
-यदि योन्याः प्रमुञ्चामि ध्याये ब्रह्म सनातनम्  - गर्भोपनिषद् १०  
-yadi yonyāḥ pramuñcāmi dhyāye brahma sanātanam  - Garbhopaniṣad 10
+यदि योन्याः प्रमुञ्चेऽहं ध्याये ब्रह्म सनातनम् - गर्भोपनिषत् ४
+yadi yonyāḥ pramuñce'haṃ dhyāye brahma sanātanam - garbhopaniṣat 4
+
+If I am released from the womb, I shall meditate on the Eternal Brahman
+
+-----
 
 तत्सवितुर्वरेण्यं भर्गो देवस्य धीमहि  
 tatsaviturvareṇyaṃ bhargo devasya dhīmahi
+
+We reflect upon that radiance of Sun, that is to be solicited for.
 
 
 page 16
@@ -39,6 +45,8 @@ Page 23
 अनेकजन्मसंसिद्धस्ततो याति परां गतिम् - गीता ६-४५   
 anekajanmasaṃsiddhastato yāti parāṃ gatim - Gītā 6-45
 
+Then, perfected through many births, [the yogi] attains the supreme goal.
+
 Chapter 2
 ========
 Section 2, Page 30
@@ -46,6 +54,8 @@ Section 2, Page 30
 
 पाण्डित्यं निर्विद्य बाल्येन तिष्ठासेत् - बृहदारण्यकोपनिषद् ३-५-१   
 pāṇḍityaṃ nirvidya bālyena tiṣṭhāset - bṛhadāraṇyakopaniṣad 3-5-1
+
+TODO: meaning to be added
 
 
 Section 2, Page 33
@@ -59,6 +69,9 @@ Section 2, Page 33
 tava kathāmṛtaṃ taptajīvanaṃ kavibhirīḍitaṃ kalmaṣāpaham,  
 śravaṇamaṅgalaṃ śrīmadātataṃ bhuvi gṛṇanti ye bhūridā janāḥ.   
 śrīmadbhāgavatam 10-31-9  
+
+
+The nectar of Your words is life for the ones scorched by sorrow and pain. It is praised by the sages. It destroys sins. Hearing it is auspicious. It is spread by the fortunate. Those who narrate it are the munificent ones. 
 
 Chapter 3
 ========
@@ -145,6 +158,30 @@ Section 4, Page 64
 bhaja govindaṃ bhaja govindaṃ bhaja govindaṃ mūḍhamate  
 Worship Govinda, worship Govinda, worship Govinda, O foolish one!
 
+Section 4, Page 65
+--------------
 
+आयाहि वरदे देवी त्र्यक्षरे ब्रह्मवादिनी ।  
+गायत्रि छन्दसां मातर्ब्रह्मयोने नमोऽस्तु ते ॥  
+
+āyāhi varade devī tryakṣare brahmavādinī,  
+gāyatri chandasāṃ mātarbrahmayone namo'stu te.
+
+Salutations to You, O Devi Gayatri, come, One whose name is of three syllables, the Giver of boons,  the Exponent of Brahman, the Mother of metres, the Origin of (even the) Brahman.
+ 
+-----
+ 
+ॐ पूर्णमदः पूर्णमिदं पूर्णात् पूर्णमुदच्यते।   
+पूर्णस्य पूर्णमादाय पूर्णमेवावशिष्यते॥  
+ॐ शान्तिः शान्तिः शान्तिः  
+(ईशोपनिषद् - शान्तिपाठः) 
+
+oṃ pūrṇamadaḥ pūrṇamidaṃ pūrṇāt pūrṇamudacyate,
+pūrṇasya pūrṇamādāya pūrṇamevāvaśiṣyate.
+oṃ śāntiḥ śāntiḥ śāntiḥ
+
+(īśopaniṣad - śāntipāṭhaḥ)
+
+TODO: add meaning
 
 
