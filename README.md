@@ -34,6 +34,8 @@ page 17
 मूकं करोति वाचालं पङ्गुं लङ्घयते गिरिम्  
 mūkaṃ karoti vācālaṃ paṅguṃ laṅghayate girim
 
+He makes the dumb eloquent and makes the lame go across mountains.
+
 
 ॐ श्रीरामकृष्णार्पणमस्तु  
 oṃ śrīrāmakṛṣṇārpaṇamastu
@@ -142,12 +144,14 @@ Oṃ namaḥ śivāya, oṃ namaḥ śivāya,  Oṃ namaḥ śivāya.
 
 OM, salutations to Shiva. OM, salutations to Shiva. OM, salutations to Shiva.
 
-ॐ नमोऽनन्ताय
-oṃ namo'nantāya
+ॐ नमोऽनन्ताय  
+oṃ namo'nantāya  
 OM, salutations to the Infinite.
 
-ॐ नमो निखिलानन्दाय, ॐ नमो निखिलानन्दाय
-oṃ namo nikhilānandāya, oṃ namo nikhilānandāya   
+ॐ नमो निखिलानन्दाय,   
+ॐ नमो निखिलानन्दाय  
+oṃ namo nikhilānandāya,   
+oṃ namo nikhilānandāya   
 OM, salutations to the bliss of the Totality,  
 Om, salutations to the bliss of the Totality.
 
