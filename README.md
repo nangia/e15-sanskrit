@@ -11,8 +11,8 @@ oṃ śāntiḥ śāntiḥ śāntiḥ
 =====
 Page 15
 ------
-यदि योन्याः प्रमुञ्चेऽहं ध्याये ब्रह्म सनातनम् - गर्भोपनिषत् ४
-yadi yonyāḥ pramuñce'haṃ dhyāye brahma sanātanam - garbhopaniṣat 4
+यदि योन्याः प्रमुञ्चेऽहं ध्याये ब्रह्म सनातनम् - गर्भोपनिषत् ४   
+yadi yonyāḥ pramuñce'haṃ dhyāye brahma sanātanam - garbhopaniṣat 4   
 
 If I am released from the womb, I shall meditate on the Eternal Brahman
 
@@ -53,7 +53,7 @@ Section 2, Page 30
 --------------
 
 पाण्डित्यं निर्विद्य बाल्येन तिष्ठासेत् - बृहदारण्यकोपनिषद् ३-५-१   
-pāṇḍityaṃ nirvidya bālyena tiṣṭhāset - bṛhadāraṇyakopaniṣad 3-5-1
+pāṇḍityaṃ nirvidya bālyena tiṣṭhāset - bṛhadāraṇyakopaniṣad 3-5-1  
 
 TODO: meaning to be added
 
@@ -89,12 +89,12 @@ O Arjuna, the Lord dwwells in the region of heart in all beings, causing all bei
 
 ---
 
-ज्ञानिनामपि चेतांसि देवी भगवती हि सा।
-बलादाकृष्य मोहाय महामाया प्रयच्छति,
+ज्ञानिनामपि चेतांसि देवी भगवती हि सा।   
+बलादाकृष्य मोहाय महामाया प्रयच्छति,   
 दुर्गासप्तशती १-५५
 
-jñānināmapi cetāṃsi devī bhagavatī hi sā।
-balādākṛṣya mohāya mahāmāyā prayacchati,
+jñānināmapi cetāṃsi devī bhagavatī hi sā,
+balādākṛṣya mohāya mahāmāyā prayacchati.   
 durgāsaptaśatī 1-55
 
 Verily, She, the Bhagavatī, Mahāmāyā forcibly drawing the minds of even the wise, throws them into delusion.
@@ -176,8 +176,8 @@ Salutations to You, O Devi Gayatri, come, One whose name is of three syllables, 
 ॐ शान्तिः शान्तिः शान्तिः  
 (ईशोपनिषद् - शान्तिपाठः) 
 
-oṃ pūrṇamadaḥ pūrṇamidaṃ pūrṇāt pūrṇamudacyate,
-pūrṇasya pūrṇamādāya pūrṇamevāvaśiṣyate.
+oṃ pūrṇamadaḥ pūrṇamidaṃ pūrṇāt pūrṇamudacyate,  
+pūrṇasya pūrṇamādāya pūrṇamevāvaśiṣyate.  
 oṃ śāntiḥ śāntiḥ śāntiḥ
 
 (īśopaniṣad - śāntipāṭhaḥ)
