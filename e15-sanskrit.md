@@ -1,4 +1,4 @@
-ॐ शान्तिः शान्तिः शान्तिः
+ॐ शान्तिः शान्तिः शान्तिः  
 oṃ śāntiḥ śāntiḥ śāntiḥ
 
 -----
@@ -34,6 +34,15 @@ page 23
 अनेकजन्मसंसिद्धस्ततो याति परां गतिम् - गीता ६-४५   
 anekajanmasaṃsiddhastato yāti parāṃ gatim - Gītā 6-45
 
-continue from 32
+Chapter 2
+========
+Page 24
 --------------
 
+तव कथामृतं तप्तजीवनं कविभिरीडितं कल्मषापहम्।  
+श्रवणमङ्गलं श्रीमदाततं भुवि गृणन्ति ये भूरिदा जनाः॥   
+श्रीमद्भागवतम् १०-३१-९  
+
+tava kathāmṛtaṃ taptajīvanaṃ kavibhirīḍitaṃ kalmaṣāpaham,  
+śravaṇamaṅgalaṃ śrīmadātataṃ bhuvi gṛṇanti ye bhūridā janāḥ.   
+śrīmadbhāgavatam 10-31-9  
