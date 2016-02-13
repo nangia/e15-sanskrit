@@ -1,5 +1,10 @@
+Note: Page numbers refer to Sri Ma Darshan (Hindi)
+
+----
+
 ॐ शान्तिः शान्तिः शान्तिः  
 oṃ śāntiḥ śāntiḥ śāntiḥ
+
 
 -----
 भूमिका
@@ -29,15 +34,23 @@ oṃ śrīrāmakṛṣṇārpaṇamastu
 
 Chapter 1
 ========
-page 23
+Page 23
 -----
 अनेकजन्मसंसिद्धस्ततो याति परां गतिम् - गीता ६-४५   
 anekajanmasaṃsiddhastato yāti parāṃ gatim - Gītā 6-45
 
 Chapter 2
 ========
-Page 24
+Section 2, Page 30
 --------------
+
+पाण्डित्यं निर्विद्य बाल्येन तिष्ठासेत् - बृहदारण्यकोपनिषद् ३-५-१   
+pāṇḍityaṃ nirvidya bālyena tiṣṭhāset - bṛhadāraṇyakopaniṣad 3-5-1
+
+
+Section 2, Page 33
+--------------
+
 
 तव कथामृतं तप्तजीवनं कविभिरीडितं कल्मषापहम्।  
 श्रवणमङ्गलं श्रीमदाततं भुवि गृणन्ति ये भूरिदा जनाः॥   
@@ -46,3 +59,92 @@ Page 24
 tava kathāmṛtaṃ taptajīvanaṃ kavibhirīḍitaṃ kalmaṣāpaham,  
 śravaṇamaṅgalaṃ śrīmadātataṃ bhuvi gṛṇanti ye bhūridā janāḥ.   
 śrīmadbhāgavatam 10-31-9  
+
+Chapter 3
+========
+Section 3, Page 45
+--------------
+ईश्वरः सर्वभूतानां हृद्देशेऽर्जुन तिष्ठति।  
+भ्रामयन्सर्वभूतानि यन्त्रारूढानि मायया॥  
+गीता १८-६१  
+
+īśvaraḥ sarvabhūtānāṃ hṛddeśe'rjuna tiṣṭhati,  
+bhrāmayansarvabhūtāni yantrārūḍhāni māyayā.
+gītā 18-61
+
+O Arjuna, the Lord dwwells in the region of heart in all beings, causing all beings to revolve, as if mounted on a machine by His Māya.
+
+---
+
+ज्ञानिनामपि चेतांसि देवी भगवती हि सा।
+बलादाकृष्य मोहाय महामाया प्रयच्छति,
+दुर्गासप्तशती १-५५
+
+jñānināmapi cetāṃsi devī bhagavatī hi sā।
+balādākṛṣya mohāya mahāmāyā prayacchati,
+durgāsaptaśatī 1-55
+
+Verily, She, the Bhagavatī, Mahāmāyā forcibly drawing the minds of even the wise, throws them into delusion.
+
+Section 3, Page 47
+--------------
+ईश्वरः सर्वभूतानां हृद्देशेऽर्जुन तिष्ठति।  
+भ्रामयन्सर्वभूतानि यन्त्रारूढानि मायया॥  
+गीता १८-६१  
+
+īśvaraḥ sarvabhūtānāṃ hṛddeśe'rjuna tiṣṭhati,  
+bhrāmayansarvabhūtāni yantrārūḍhāni māyayā.
+gītā 18-61
+
+O Arjuna, the Lord dwwells in the region of heart in all beings, causing all beings to revolve, as if mounted on a machine by His Māya.
+
+Chapter 4
+========
+Section 1, Page 51
+--------------
+तस्मात्त्वमेव शरणं मम दीनबन्धो  
+tasmāttvameva śaraṇaṃ mama dīnabandho 
+(Stotra on Sri Ramakrishna written by Swami Vivekananda)
+Therefore, Thou art my only refuge, O Friend of the distressed
+
+----
+कृपा हि केवलम्, कृपा हि केवलम्
+
+kṛpā hi kevalam, kṛpā hi kevalam
+
+Grace is the only course, grace is the only course.
+
+Section 2, Page 57
+--------------
+ॐ नमो नारायणाय  
+oṃ namo nārāyaṇāya
+
+OM, salutaions to Nārāyaṇa
+
+Section 3, Page 61
+--------------
+
+ॐ नमः शिवाय, ॐ नमः शिवाय,  ॐ नमः शिवाय। 
+Oṃ namaḥ śivāya, oṃ namaḥ śivāya,  Oṃ namaḥ śivāya.
+
+OM, salutations to Shiva. OM, salutations to Shiva. OM, salutations to Shiva.
+
+ॐ नमोऽनन्ताय
+oṃ namo'nantāya
+OM, salutations to the Infinite.
+
+ॐ नमो निखिलानन्दाय, ॐ नमो निखिलानन्दाय
+oṃ namo nikhilānandāya, oṃ namo nikhilānandāya   
+OM, salutations to the bliss of the Totality,  
+Om, salutations to the bliss of the Totality.
+
+Section 4, Page 64
+--------------
+
+भज गोविन्दं भज गोविन्दं भज गोविन्दं  मूढमते  
+bhaja govindaṃ bhaja govindaṃ bhaja govindaṃ mūḍhamate  
+Worship Govinda, worship Govinda, worship Govinda, O foolish one!
+
+
+
+
