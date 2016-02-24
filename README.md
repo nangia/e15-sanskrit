@@ -188,4 +188,82 @@ oṃ śāntiḥ śāntiḥ śāntiḥ
 
 TODO: add meaning
 
+Chapter 5
+========
+Section 1, Page 67
+--------------
+
+ॐ नमो रामकृष्णाय
+oṃ namo rāmakṛṣṇāya
+OM salutations to Ramakrishna
+Section 1, Page 69
+--------------
+
+नान्यः पन्था विद्यतेऽयनाय - श्वेताश्वतरोपनिषत्  ६-१५
+
+nānyaḥ panthā vidyate'yanāya - śvetāśvataropaniṣat  6-15
+
+There is no other path for final emancipation
+
+Section 2, Page 71
+--------------
+
+पूर्णमदः पूर्णमिदं पूर्णात् पूर्णमुदच्यते।   
+पूर्णस्य पूर्णमादाय पूर्णमेवावशिष्यते॥  
+ॐ शान्तिः शान्तिः शान्तिः  
+(ईशोपनिषद् - शान्तिपाठः) 
+
+pūrṇamadaḥ pūrṇamidaṃ pūrṇāt pūrṇamudacyate,  
+pūrṇasya pūrṇamādāya pūrṇamevāvaśiṣyate.  
+oṃ śāntiḥ śāntiḥ śāntiḥ
+
+(īśopaniṣad - śāntipāṭhaḥ)
+
+TODO: add meaning
+
+Section 3, Page 80
+--------------
+
+त्यागेनैके अमृतत्वमानशु: - कैवल्योपनिषत् 3
+tyāgenaike amṛtatvamānaśu: - kaivalyopaniṣat 3
+
+By renunciation alone some (rare ones) attained Immortality
+
+Section 4, Page 80
+--------------
+
+शुभस्य शीघ्रम्
+śubhasya śīghram
+
+The auscpicious (task) should be done quickly
+
+----
+
+तदात्मनि निरते य उपनिषत्सु धर्मास्ते मयि सन्तु ते मयि सन्तु ।
+ॐ शान्तिः शान्तिः शान्तिः ॥
+
+tadātmani nirate ya upaniṣatsu dharmāste mayi santu te mayi santu ।
+oṃ śāntiḥ śāntiḥ śāntiḥ ॥
+
+TODO: add meaning (it is in shantipaatha of saamaveda, e.g. kena and chhandoya upanishad)
+
+Section 4, Page 84
+--------------
+
+यस्तु कर्मफलत्यागी स त्यागीत्यभिधीयते॥१८- ११॥  - गीता १८-११
+yastu karmaphalatyāgī sa tyāgītyabhidhīyate - gītā 18-11
+
+He who relinquishes the fruits of action is called a relinquisher
+
+---
+
+सन्यासः कर्मयोगश्च नि:श्रेयसकरावुभौ - गीता ५-२
+sanyāsaḥ karmayogaśca ni:śreyasakarāvubhau - gītā 5-2
+
+Both renunciation and performance of action lead to final emancipation
+
+
+
+
+
 
