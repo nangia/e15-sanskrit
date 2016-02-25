@@ -250,142 +250,135 @@ TODO: add meaning (it is in shantipaatha of saamaveda, e.g. kena and chhandoya u
 Section 4, Page 84
 --------------
 
-यस्तु कर्मफलत्यागी स त्यागीत्यभिधीयते॥१८- ११॥  - गीता १८-११
-yastu karmaphalatyāgī sa tyāgītyabhidhīyate - gītā 18-11
+यस्तु कर्मफलत्यागी स त्यागीत्यभिधीयते॥१८- ११॥  - गीता १८-११   
+yastu karmaphalatyāgī sa tyāgītyabhidhīyate - gītā 18-11   
 
-He who relinquishes the fruits of action is called a relinquisher
+He who relinquishes the fruits of action is called a relinquisher   
 
 ---
 
-सन्यासः कर्मयोगश्च नि:श्रेयसकरावुभौ - गीता ५-२
-sanyāsaḥ karmayogaśca ni:śreyasakarāvubhau - gītā 5-2
+सन्यासः कर्मयोगश्च नि:श्रेयसकरावुभौ - गीता ५-२   
+sanyāsaḥ karmayogaśca ni:śreyasakarāvubhau - gītā 5-2   
 
-Both renunciation and performance of action lead to final emancipation
+Both renunciation and performance of action lead to final emancipation   
 
 Chapter 6
 ========
 Section 1, Page 92
 --------------
 
-हरे कृष्ण हरे कृष्ण
+हरे कृष्ण हरे कृष्ण   
 
-Hare Kṛṣṇa Hare Kṛṣṇa
+Hare Kṛṣṇa Hare Kṛṣṇa   
 
 Section 1, Page 93
 --------------
 
-गतिर्भर्ता प्रभुः साक्षी निवासः शरणं सुहृत् ।
-प्रभवः प्रलयः स्थानं निधानं बीजमव्ययम् ॥ 
+गतिर्भर्ता प्रभुः साक्षी निवासः शरणं सुहृत् ।   
+प्रभवः प्रलयः स्थानं निधानं बीजमव्ययम् ॥ गीता ९-१८    
 
-गीत ९-१८ 
+gatirbhartā prabhuḥ sākṣī nivāsaḥ śaraṇaṃ suhṛt ।   
+prabhavaḥ pralayaḥ sthānaṃ nidhānaṃ bījamavyayam ॥    Gīta 9-18 
 
-gatirbhartā prabhuḥ sākṣī nivāsaḥ śaraṇaṃ suhṛt ।
-prabhavaḥ pralayaḥ sthānaṃ nidhānaṃ bījamavyayam ॥ 
-
-Gīta 9-18 
-
-(I am) the Goal, the Supporter, the Lord, the Witness, the Abode, the Refuge, the Friend, the Origin, the Dissolution, the Substratum, the Storehouse, the Seed immutable.
+(I am) the Goal, the Supporter, the Lord, the Witness, the Abode, the Refuge, the Friend, the Origin, the Dissolution, the Substratum, the Storehouse, the Seed immutable.   
 
 Section 2, Page 96
 --------------
 
-नलिनीदलगतजलमतितरलं तद्वज्जीवितमतिशयचपलम् । मोहमुद्गरः ४
-nalinīdalagatajalamatitaralaṃ tadvajjīvitamatiśayacapalam - mohamudgaraḥ 4
+नलिनीदलगतजलमतितरलं तद्वज्जीवितमतिशयचपलम् । मोहमुद्गरः ४   
+nalinīdalagatajalamatitaralaṃ tadvajjīvitamatiśayacapalam - mohamudgaraḥ 4   
 
-Just as water on a leaf of a lotus leaf is fickle, so is the life very transient.
+Just as water on a leaf of a lotus leaf is fickle, so is the life very transient.   
 
-भज गोविन्दं भज गोविन्दं गोविन्दं भज मूढमते। मोहमुदगरः १
-bhaja govindaṃ bhaja govindaṃ govindaṃ bhaja mūḍhamate - mohamudagaraḥ 1
+भज गोविन्दं भज गोविन्दं गोविन्दं भज मूढमते। मोहमुदगरः १   
+bhaja govindaṃ bhaja govindaṃ govindaṃ bhaja mūḍhamate - mohamudagaraḥ 1   
 
-Worship Govinda, worship Govinda, worship Govinda, O foolish one!
+Worship Govinda, worship Govinda, worship Govinda, O foolish one!   
 
 -----
 
-भज गोविन्दं भज गोविन्दं गोविन्दं भज मूढमते।
-bhaja govindaṃ bhaja govindaṃ govindaṃ bhaja mūḍhamate
+भज गोविन्दं भज गोविन्दं गोविन्दं भज मूढमते।   
+bhaja govindaṃ bhaja govindaṃ govindaṃ bhaja mūḍhamate   
 
 Section 2, Page 99
 --------------
-किं वर्णयाम तव रूपमचिन्त्यमेतत्
-किं चातिवीर्यमसुरक्षयकारि भूरि।
- किं चाहवेषु चरितानि तवाद्भुतानि
-सर्वेषु देव्यसुरदेवगणादिकेषु ॥ 
+किं वर्णयाम तव रूपमचिन्त्यमेतत्   
+किं चातिवीर्यमसुरक्षयकारि भूरि।   
+ किं चाहवेषु चरितानि तवाद्भुतानि   
+सर्वेषु देव्यसुरदेवगणादिकेषु ॥ चण्डी ४-६   
 
-चण्डी ४-६
+kiṃ varṇayāma tava rūpamacintyametat  
+kiṃ cātivīryamasurakṣayakāri bhūri।    
+kiṃ cāhaveṣu caritāni tavādbhutāni   
+sarveṣu devyasuradevagaṇādikeṣu ॥    
 
-kiṃ varṇayāma tava rūpamacintyametat
-kiṃ cātivīryamasurakṣayakāri bhūri।
-kiṃ cāhaveṣu caritāni tavādbhutāni
-sarveṣu devyasuradevagaṇādikeṣu ॥ 
+caṇḍī 4-6   
 
-caṇḍī 4-6
-
-O Devi, how can we describe your inconceivable form, or your abudant surpassing valour that destroys the asuras, or your wonderful feats displayed in battles among all the hosts of gods, asuras and others?
+O Devi, how can we describe your inconceivable form, or your abudant surpassing valour that destroys the asuras, or your wonderful feats displayed in battles among all the hosts of gods, asuras and others?  
 
 
 Section 3, Page 99
 --------------
 
-न मे पार्थास्ति कर्तव्यं त्रिषु लोकेषु किञ्चन ।
-नानवाप्तमवाप्तव्यं वर्त एव च कर्मणि ॥  गीता ३-२२
+न मे पार्थास्ति कर्तव्यं त्रिषु लोकेषु किञ्चन ।   
+नानवाप्तमवाप्तव्यं वर्त एव च कर्मणि ॥  गीता ३-२२   
 
-na me pārthāsti kartavyaṃ triṣu lokeṣu kiñcana ।
-nānavāptamavāptavyaṃ varta eva ca karmaṇi ॥ gītā 3-22
+na me pārthāsti kartavyaṃ triṣu lokeṣu kiñcana ।   
+nānavāptamavāptavyaṃ varta eva ca karmaṇi ॥ gītā 3-22   
 
 In all the three worlds, O Partha, there is no duty whatsoever for Me (to fulfil); nothing remains unachieved or to be achieved. (Still) I continue in action.
 
 ---
 
-पत्रं पुष्पं फलं तोयं यो मे भक्त्या प्रयच्छति ।
-तदहं भक्त्युपहृतमश्नामि प्रयतात्मनः ॥ ९-२६॥
+पत्रं पुष्पं फलं तोयं यो मे भक्त्या प्रयच्छति ।   
+तदहं भक्त्युपहृतमश्नामि प्रयतात्मनः ॥ ९-२६॥   
 
-patraṃ puṣpaṃ phalaṃ toyaṃ yo me bhaktyā prayacchati ।
-tadahaṃ bhaktyupahṛtamaśnāmi prayatātmanaḥ ॥ gītā 9-26॥
+patraṃ puṣpaṃ phalaṃ toyaṃ yo me bhaktyā prayacchati ।   
+tadahaṃ bhaktyupahṛtamaśnāmi prayatātmanaḥ ॥ gītā 9-26॥   
 
 Whoever offers Me with devotion a leaf, a flower, a fruit, or water, I accept the devout gift of the pure-minded.
 
 Section 4, Page 106
 --------------
 
-स्वयमेवात्मनाऽत्मानं वेत्थ त्वं पुरुषोत्तम।
-svayamevātmanā'tmānaṃ vettha tvaṃ puruṣottama - gītā 10-15
+स्वयमेवात्मनाऽत्मानं वेत्थ त्वं पुरुषोत्तम।   
+svayamevātmanā'tmānaṃ vettha tvaṃ puruṣottama - gītā 10-15   
 
-O supreme Person, You Yourself alone know Yourself by Yourself.
+O supreme Person, You Yourself alone know Yourself by Yourself.  
 
 ----
-यमेवैष वृणुते तेन लभ्यः
+यमेवैष वृणुते तेन लभ्यः   
 
-yamevaiṣa vṛṇute tena labhyaḥ - muṇḍakopaniṣat 3-2-3
+yamevaiṣa vṛṇute tena labhyaḥ - muṇḍakopaniṣat 3-2-3   
 
-He is attained only by one whom He chooses
+He is attained only by one whom He chooses   
 
 Section 5, Page 111
 --------------
 
-यत्करोषि यदश्नासि यज्जुहोषि ददासि यत्।
-यत्तपस्यसि कौन्तेय तत्कुरुष्व मदर्पणम्।।
+यत्करोषि यदश्नासि यज्जुहोषि ददासि यत्।   
+यत्तपस्यसि कौन्तेय तत्कुरुष्व मदर्पणम्।।   
 
-yatkaroṣi yadaśnāsi yajjuhoṣi dadāsi yat।
-yattapasyasi kaunteya tatkuruṣva madarpaṇam।। gītā 9-27
+yatkaroṣi yadaśnāsi yajjuhoṣi dadāsi yat।   
+yattapasyasi kaunteya tatkuruṣva madarpaṇam।। gītā 9-27   
 
 O son of Kunti, whatever you do, whatever you eat, whatever you offer as a sacrifice, whatever you give and whatever austerities you undertake, (all) that you offer to Me.
 
 Section 5, Page 112
 --------------
 
-स्वल्पमप्यस्य धर्मस्य - गीता २-४०
-svalpamapyasya dharmasya - gītā 2-40
-Even a little of this dharma...
-
+स्वल्पमप्यस्य धर्मस्य - गीता २-४०   
+svalpamapyasya dharmasya - gītā 2-40   
+Even a little of this dharma...   
+ 
 
 Section 5, Page 113
 --------------
 
-स्वल्पमप्यस्य धर्मस्य त्रायते महतो भयात् गीता २-४०
-svalpamapyasya dharmasya trāyate mahato bhayāt gītā 2-40
+स्वल्पमप्यस्य धर्मस्य त्रायते महतो भयात् गीता २-४०   
+svalpamapyasya dharmasya trāyate mahato bhayāt gītā 2-40   
 
-Even a little of this dharma saves (one) from great fear.
-
+Even a little of this dharma saves (one) from great fear.   
 
 
 
