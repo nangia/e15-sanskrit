@@ -285,13 +285,13 @@ prabhavaḥ pralayaḥ sthānaṃ nidhānaṃ bījamavyayam ॥    Gīta 9-18
 Section 2, Page 96
 --------------
 
-नलिनीदलगतजलमतितरलं तद्वज्जीवितमतिशयचपलम् । मोहमुद्गरः ४   
-nalinīdalagatajalamatitaralaṃ tadvajjīvitamatiśayacapalam - mohamudgaraḥ 4   
+नलिनीदलगतजलमतितरलं तद्वज्जीवितमतिशयचपलम् । मोहमुद्गरः ४     
+nalinīdalagatajalamatitaralaṃ tadvajjīvitamatiśayacapalam - mohamudgaraḥ 4     
 
 Just as water on a leaf of a lotus leaf is fickle, so is the life very transient.   
 
-भज गोविन्दं भज गोविन्दं गोविन्दं भज मूढमते। मोहमुदगरः १   
-bhaja govindaṃ bhaja govindaṃ govindaṃ bhaja mūḍhamate - mohamudagaraḥ 1   
+भज गोविन्दं भज गोविन्दं गोविन्दं भज मूढमते। मोहमुदगरः १     
+bhaja govindaṃ bhaja govindaṃ govindaṃ bhaja mūḍhamate - mohamudagaraḥ 1     
 
 Worship Govinda, worship Govinda, worship Govinda, O foolish one!   
 
@@ -375,8 +375,8 @@ Even a little of this dharma...
 Section 5, Page 113
 --------------
 
-स्वल्पमप्यस्य धर्मस्य त्रायते महतो भयात् गीता २-४०   
-svalpamapyasya dharmasya trāyate mahato bhayāt gītā 2-40   
+स्वल्पमप्यस्य धर्मस्य त्रायते महतो भयात् - गीता २-४०   
+svalpamapyasya dharmasya trāyate mahato bhayāt - gītā 2-40   
 
 Even a little of this dharma saves (one) from great fear.   
 
