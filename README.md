@@ -378,12 +378,96 @@ Section 5, Page 113
 स्वल्पमप्यस्य धर्मस्य त्रायते महतो भयात् - गीता २-४०   
 svalpamapyasya dharmasya trāyate mahato bhayāt - gītā 2-40   
 
-Even a little of this dharma saves (one) from great fear.   
+Even a little of this dharma saves (one) from great fear.  
 
 
 
+Chapter 7
+========
+Section 1, Page 116
+--------------
+अतन्द्रित -- गीता ३:२३   
+atandrita -- gītā 3:23  
+
+without sloth
+
+Section 1, Page 118
+--------------
+
+परित्राणाय साधूनाम् - गीता ४-८  
+paritrāṇāya sādhūnām - gītā 4-8  
+
+For the protection of the pious
+
+Section 1, Page 119
+--------------
+
+कच्चिन्नोभयविभ्रष्टश्छिन्नाभ्रमिव नश्यति ।   
+अप्रतिष्ठो महाबाहो विमूढो ब्रह्मणः पथि ॥ गीता ६-३८॥   
+
+kaccinnobhayavibhraṣṭaśchinnābhramiva naśyati ।
+apratiṣṭho mahābāho vimūḍho brahmaṇaḥ pathi ॥ gītā 6-38॥
+
+O Mighty-armed one, fallen from both, without support, deluded on the path to Brahman, does he not get ruined like a scattered cloud?
 
 
+----
+
+देवान्भावयतानेन ते देवा भावयन्तु वः ।   
+परस्परं भावयन्तः श्रेयः परमवाप्स्यथ ॥ गीता ३-११॥   
+
+devānbhāvayatānena te devā bhāvayantu vaḥ ।
+parasparaṃ bhāvayantaḥ śreyaḥ paramavāpsyatha ॥ gītā 3-11॥
+
+You nourish the gods with this. Let those gods nourish you. Nourishing one another, you shall attain the supreme Good.
+
+---
+
+इतो नष्टस्ततो भ्रष्टः
+
+Lost from here, dismissed from there
+
+
+Section 7, Page 134
+--------------
+
+ब्रह्मार्पणं ब्रह्म हविर्ब्रह्माग्नौ ब्रह्मणा हुतम्।  
+ब्रह्मैव तेन गन्तव्यं ब्रह्मकर्मसमाधिना ॥ गीता ४-२४॥  
+
+brahmārpaṇaṃ brahma havirbrahmāgnau brahmaṇā hutam ।
+brahmaiva tena gantavyaṃ brahmakarmasamādhinā ॥ gītā 4-24॥
+
+The ladle is Brahman, the oblation is Brahman, the offering is poured by Brahman in the fire of Brahman. Brahman alone is to be reached by him by him who sees Brahman in action.
+
+---
+
+ब्रह्मार्पणं ब्रह्म हविः
+
+brahmārpaṇaṃ brahma haviḥ
+
+----
+
+ॐ नमः शिवाय, ॐ नमः शिवाय  
+oṃ namaḥ śivāya, oṃ namaḥ śivāya
+
+
+----
+
+अन्नं ब्रह्मेति व्यजानात्। अन्नाद्ध्येव खल्विमानि
+भुतानि जायन्ते। अन्नेन जातानि जीवन्ति।
+अन्नं प्रयन्त्यभिसंविशन्तीति।
+
+
+अन्नं न निन्द्यात्। तद्व्रतम्।
+
+अन्नं न परिचक्षीत। तद्व्रतम्।
+
+हा ३ वु हा ३ वु हा ३ वु॥५॥
+
+अहमन्नमहमन्नमहमन्नम्।
+अहमन्नादो३ऽहमन्नादो३ऽअहमन्नादः।
+
+http://kavitakosh.org/kk/तैत्तिरीयोपनिषत्_/_भृगुवल्ली_/_संस्कृतम्%E2%80%8C
 
 
 
