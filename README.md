@@ -559,11 +559,11 @@ prabhavaḥ pralayaḥ sthānaṃ nidhānaṃ bījamavyayam॥  gītā 9-18
 Section 3, Page 163
 --------------
 
-आहारनिद्राभयमैथुनं च समानमेतत्पशुभिर्नराणाम्।
-धर्मो हि तेषामधिको विशेषो धर्मेण हीनाः पशुभिः समानाः॥
+आहारनिद्राभयमैथुनं च समानमेतत्पशुभिर्नराणाम्।  
+धर्मो हि तेषामधिको विशेषो धर्मेण हीनाः पशुभिः समानाः॥  
 
-āhāranidrābhayamaithunaṃ ca samānametatpaśubhirnarāṇām।
-dharmo hi teṣāmadhiko viśeṣo dharmeṇa hīnāḥ paśubhiḥ samānāḥ॥
+āhāranidrābhayamaithunaṃ ca samānametatpaśubhirnarāṇām।    
+dharmo hi teṣāmadhiko viśeṣo dharmeṇa hīnāḥ paśubhiḥ samānāḥ॥  
 
 Eating, sleeping and copulation - these are similar in humans and animals. What is special in humans is righteous conduct. Without righteous conduct, humans are similar to animals.
 
