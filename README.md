@@ -469,7 +469,108 @@ oṃ namaḥ śivāya, oṃ namaḥ śivāya
 
 http://kavitakosh.org/kk/तैत्तिरीयोपनिषत्_/_भृगुवल्ली_/_संस्कृतम्%E2%80%8C
 
+Section 7, Page 134
+--------------
 
+अहं रुद्रेभिर्वसुभिश्र्चराम्यहमादित्यैरुत विश्र्वदेवैः ।
+अहं मित्रावरुणोभा बिभर्म्यहमिन्द्राग्नी अहमश्र्विनोभा ॥ १ ॥
+
+ahaṃ rudrebhirvasubhiśrcarāmyahamādityairuta viśrvadevaiḥ ।
+ahaṃ mitrāvaruṇobhā bibharmyahamindrāgnī ahamaśrvinobhā ॥ 1 ॥
+
+
+
+Chapter 8
+========
+Section 1, Page 142
+--------------
+
+ॐ नमो नारायणाय 
+
+नारायण
+
+oṃ namo nārāyaṇāya 
+
+nārāyaṇa
+
+
+OM, Salutatons to Nārāyaṇa
+
+Section 2, Page 147
+--------------
+स्वल्पमप्यस्य धर्मस्य त्रायते महतो भयात् - गीता २-४०  
+svalpamapyasya dharmasya trāyate mahato bhayāt - gītā 2-40  
+
+
+Even a little of this righteousness saves (one) from great fear.  
+
+Section 3, Page 148
+--------------
+
+प्राप्तिमात्रेण भक्षयेत्  
+prāptimātreṇa bhakṣayet  
+
+One should eat it as soon as it is obtained.
+
+Section 3, Page 149
+--------------
+
+मत्तः परतरं नान्यत्किञ्चिदस्ति धनञ्जय ।  
+मयि सर्वमिदं प्रोतं सूत्रे मणिगणा इव ॥ गीता ७-७   
+
+mattaḥ parataraṃ nānyatkiñcidasti dhanañjaya ।  
+mayi sarvamidaṃ protaṃ sūtre maṇigaṇā iva ॥ gītā 7-7   
+
+
+O Dhananjaya, there is nothing else whatsoever higher than Myself. All this is strung on Me like pearls on a string.
+
+Chapter 9
+========
+Section 1, Page 152
+--------------
+
+गोविन्दाय नमः, कृष्णाय नमः  
+
+govindāya namaḥ, kṛṣṇāya namaḥ
+
+Salutations to Govinda, salutations to Krishna.
+
+
+Section 2, Page 157
+--------------
+
+वसुधैव कुटुम्बकम्
+
+vasudhaiva kuṭumbakam
+
+The whole earth is the family
+
+Section 3, Page 162
+--------------
+
+गतिर्भर्ता प्रभुः साक्षी निवासः शरणं सुहृत्।  
+प्रभवः प्रलयः स्थानं निधानं बीजमव्ययम्॥ 
+
+gatirbhartā prabhuḥ sākṣī nivāsaḥ śaraṇaṃ suhṛt।  
+prabhavaḥ pralayaḥ sthānaṃ nidhānaṃ bījamavyayam॥  gītā 9-18
+
+(I am) the Goal, the Supporter, the Lord, the Witness, the Abode, the Refuge, the Friend, the Origin, the Dissolution, the Substratum, the Storehouse and the Seed immutable. 
+
+Section 3, Page 163
+--------------
+
+आहारनिद्राभयमैथुनं च समानमेतत्पशुभिर्नराणाम्।
+धर्मो हि तेषामधिको विशेषो धर्मेण हीनाः पशुभिः समानाः॥
+
+āhāranidrābhayamaithunaṃ ca samānametatpaśubhirnarāṇām।
+dharmo hi teṣāmadhiko viśeṣo dharmeṇa hīnāḥ paśubhiḥ samānāḥ॥
+
+Eating, sleeping and copulation - these are similar in humans and animals. What is special in humans is righteous conduct. Without righteous conduct, humans are similar to animals.
+
+Section 5, Page 174
+--------------
+
+ 
 
 
 
