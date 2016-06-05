@@ -560,7 +560,7 @@ Section 3, Page 163
 --------------
 
 आहारनिद्राभयमैथुनं च समानमेतत्पशुभिर्नराणाम्।  
-धर्मो हि तेषामधिको विशेषो धर्मेण हीनाः पशुभिः समानाः॥  
+धर्मो हि तेषामधिको विशेषो धर्मेण हीनाः पशुभिः समानाः॥ चाणक्य नीति 17-14॥
 
 āhāranidrābhayamaithunaṃ ca samānametatpaśubhirnarāṇām।    
 dharmo hi teṣāmadhiko viśeṣo dharmeṇa hīnāḥ paśubhiḥ samānāḥ॥  
